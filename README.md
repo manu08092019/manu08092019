@@ -1,7 +1,7 @@
 - 👋 Oi, meu nome é akira
 - 👀 Eu sou interesssado em livros e jogos
 - 🌱 Atualmente estou aprendendo informática
-- 💞️ Procuro colaborar em viver
+- 💞️ solteira
 - 📫 pelo meu insta @akira._.gothic
 
 <!---
